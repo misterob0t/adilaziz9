@@ -1,7 +1,7 @@
 ![1000_F_222967089_uftweUTsmcqiDYMzFXvSdOI0AfwxNqa7](https://github.com/user-attachments/assets/8b5c41bd-1496-4e1c-a166-571197e95f4f)
 
 # 💫 About Me
-🌱 I’m currently learning application development.<br>📫 How to reach me adilaziz.dev@gmail.com.<br>⚡ Fun fact I am funny.
+🌱 I’m currently learning application development.<br>👨🏻‍🎓Studied Computer Science at Nexa Digital, Paris.<br>⚡ Fun fact I am funny.<br>📫 How to reach me adilaziz.dev@gmail.com
 
 
 ## 🌐 Socials
