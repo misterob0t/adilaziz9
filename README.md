@@ -46,3 +46,9 @@
 <hr/>
 
 <div align="center">
+
+###
+
+<img src="https://raw.githubusercontent.com/adilaziz9/adilaziz9/output/snake.svg" alt="Snake animation" />
+
+###
