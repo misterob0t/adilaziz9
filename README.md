@@ -15,7 +15,7 @@
  
  🌱 I’m currently learning **Application Development**
 
- 💬 Ask me about anything [here](https://github.com/adilaziz9/adilaziz9/issues)
+ 💬 Ask me about anything [here](https://github.com/adilaziz9/adilaziz9/issues)**
 
  ⚡ Fun fact **I am funny**
 
