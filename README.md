@@ -1,7 +1,4 @@
-<img src="https://tenor.com/view/purple-themed-anime-train-gif-gif-19595401"/> 
- 
 
-<img src="https://tenor.com/fr/view/purple-themed-anime-train-gif-gif-19595401"/> 
 <img align="right" src="https://visitor-badge.laobi.icu/badge?page_id=adilaziz9" />
 
 <h1 align="center">
