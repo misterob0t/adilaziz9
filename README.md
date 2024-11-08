@@ -1,3 +1,5 @@
+<div class="tenor-gif-embed" data-postid="19595401" data-share-method="host" data-aspect-ratio="2.40601" data-width="100%"><a href="https://tenor.com/view/purple-themed-anime-train-gif-gif-19595401">Purple Themed Anime Train Gif GIF</a>from <a href="https://tenor.com/search/purple+themed+anime+train+gif-gifs">Purple Themed Anime Train Gif GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+
 <img src="https://tenor.com/fr/view/purple-themed-anime-train-gif-gif-19595401"/> 
 <img align="right" src="https://visitor-badge.laobi.icu/badge?page_id=adilaziz9" />
 
