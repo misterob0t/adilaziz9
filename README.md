@@ -13,7 +13,7 @@
  
  🔭 I’m currently working on **at Nexa Digital**
  
- 🌱 I’m currently learning **Development**
+ 🌱 I’m currently learning **IT Development**
 
  💬 Ask me about anything [here](https://github.com/adilaziz9/adilaziz9/issues)
 
